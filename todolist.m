@@ -6,7 +6,7 @@
 - **Address/Contact:** 
   - We provide you with the services of obtaining a Guest House for your stay in Douala, be it a day, week or months. We're also provide you with the possibilities of buying or renting a Car. Welcome to CMR
   - 
-  - Page � Location de maisons de vacances
+  - Page é Location de maisons de vacances
   - 
   - Douala, Cameroon
   - 
